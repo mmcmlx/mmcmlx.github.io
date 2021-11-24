@@ -1,5 +1,4 @@
-## Welcome to MC Freelancing
-
+## Welcome to MC
  
 
 ### Support or Contact
